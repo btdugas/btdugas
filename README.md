@@ -1,0 +1,2 @@
+Blake Dugas Red Cook ground beef with taco seasoning. Spread cooked beef on tortilla chips. Add cheese, salsa,and hot sauce to make loaded nachos. 
+Name: Blake Dugas Color: Red Favorite Food: Loaded Nachos Ingredients: Tortilla Chips, Ground Beef, Salsa, Hot Sauce, Shredded Cheese. Recipe: Cook ground beef with taco seasoning. Spread cooked ground beef on plate of tortilla chips. Add salsa, cheese, hot sauce and enjoy 
